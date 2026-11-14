@@ -33,8 +33,8 @@ My favorite scenes are the drifting competitions because I enjoy watching the dr
 
 I highly recommend this movie to people who love cars, racing, and action movies.
 
-## 💬 My Favorite Quote
+##  My Favorite Quote
 
 > "I live my life a quarter mile at a time."
 
-## 🔗 More Information
+##  More Information
